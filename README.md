@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Subi3Dad (taken)
-- 👀 I’m interested in ... Cars and tuning (taken)
-- 🌱 I’m currently learning ... IT classes (still taken)
+- 👀 I’m interested in ... Cars and tuning (but mostly my GF)
+- 🌱 I’m currently learning ... IT classes (and my GF)
 - 💞️ I’m looking to collaborate on ... how to understand this (really taken, don't even try)
 - 📫 How to reach me ... Via email (don't forget, I have a GF)
 
